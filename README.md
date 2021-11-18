@@ -1,3 +1,3 @@
-Official Github for Clay Kosonocky
+Github for Clay Kosonocky
 
-Contact email coming soon for project inquiries & more
+Contact info coming soon for project inquiries & more
